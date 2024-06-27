@@ -1,0 +1,190 @@
+{
+  "main": {
+    "id": "4d3f168d905dc45f",
+    "type": "split",
+    "children": [
+      {
+        "id": "123e33a0ac17667d",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "5b734cc759bbf642",
+            "type": "leaf",
+            "state": {
+              "type": "empty",
+              "state": {}
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "vertical"
+  },
+  "left": {
+    "id": "77d3214843fcd53b",
+    "type": "split",
+    "children": [
+      {
+        "id": "4c1979ca197dfcf1",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "d92381360f95df96",
+            "type": "leaf",
+            "state": {
+              "type": "file-explorer",
+              "state": {
+                "sortOrder": "alphabetical"
+              }
+            }
+          },
+          {
+            "id": "598c8365059c7994",
+            "type": "leaf",
+            "state": {
+              "type": "search",
+              "state": {
+                "query": "",
+                "matchingCase": false,
+                "explainSearch": false,
+                "collapseAll": false,
+                "extraContext": false,
+                "sortOrder": "alphabetical"
+              }
+            }
+          },
+          {
+            "id": "218a6116ad26c29c",
+            "type": "leaf",
+            "state": {
+              "type": "bookmarks",
+              "state": {}
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "horizontal",
+    "width": 325.5
+  },
+  "right": {
+    "id": "0c562dee27ff9b9b",
+    "type": "split",
+    "children": [
+      {
+        "id": "bfd3369c383aca81",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "8787ba197a8ca846",
+            "type": "leaf",
+            "state": {
+              "type": "backlink",
+              "state": {
+                "collapseAll": false,
+                "extraContext": false,
+                "sortOrder": "alphabetical",
+                "showSearch": false,
+                "searchQuery": "",
+                "backlinkCollapsed": false,
+                "unlinkedCollapsed": true
+              }
+            }
+          },
+          {
+            "id": "6e8098fe8473f817",
+            "type": "leaf",
+            "state": {
+              "type": "outgoing-link",
+              "state": {
+                "linksCollapsed": false,
+                "unlinkedCollapsed": true
+              }
+            }
+          },
+          {
+            "id": "add352b63621be68",
+            "type": "leaf",
+            "state": {
+              "type": "tag",
+              "state": {
+                "sortOrder": "frequency",
+                "useHierarchy": true
+              }
+            }
+          },
+          {
+            "id": "f7dfe198ff5d053b",
+            "type": "leaf",
+            "state": {
+              "type": "outline",
+              "state": {}
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "horizontal",
+    "width": 300,
+    "collapsed": true
+  },
+  "left-ribbon": {
+    "hiddenItems": {
+      "switcher:Open quick switcher": false,
+      "graph:Open graph view": false,
+      "canvas:Create new canvas": false,
+      "daily-notes:Open today's daily note": false,
+      "templates:Insert template": false,
+      "command-palette:Open command palette": false
+    }
+  },
+  "active": "5b734cc759bbf642",
+  "lastOpenFiles": [
+    "Sources/Pasted image 20240613133124.png",
+    "Notes/2024-05-31.md",
+    "Georgian Texts/Vazha Pshavela/Prose/11_a_small_shepherds_thoughts.en.md",
+    "Georgian Texts/Vazha Pshavela/Prose/10_its_rising_its_getting_light.en.md",
+    "Georgian Texts/Vazha Pshavela/Prose/09_roots.en.md",
+    "Georgian Texts/Vazha Pshavela/Prose/08_the_mountain_spring.en.md",
+    "Georgian Texts/Vazha Pshavela/Prose/07_the_coarse_grass.en.md",
+    "Georgian Texts/Vazha Pshavela/Prose/06_the_forest_was_crying.en.md",
+    "Georgian Texts/Vazha Pshavela/Prose/05_the_vulture.en.md",
+    "Georgian Texts/Vazha Pshavela/Prose/04_the_lofty_mountains.en.md",
+    "Georgian Texts/Vazha Pshavela/Prose/03_the_weeping_rock.en.md",
+    "Georgian Texts/Vazha Pshavela/Prose/02_the_withered_beech.en.md",
+    "Untitled.md",
+    "Notes/2024-06-04.md",
+    "Code/Georgian-tranlate-evaluation/README.md",
+    "Georgian Texts/Translations_from_Vazha_Pshavela_GeorgeHewitt.pdf",
+    "Georgian Texts/Vazha Pshavela/Prose/12_the_wedding_of_the_jays.en.md",
+    "Georgian Texts/Translations_from_Vazha_Pshavela_GeorgeHewitt.txt.md",
+    "Georgian Texts/Vazha Pshavela/Poems/02_bakur.en.md",
+    "Georgian Texts/Vazha Pshavela/Prose/01_violet.ge.md",
+    "Georgian Texts/Vazha Pshavela/Prose/01_violet.en.md",
+    "Georgian Texts/Vazha Pshavela/Poems/15_thrush_its_the_same_song_you_sing.en.md",
+    "Georgian Texts/Vazha Pshavela/Poems/14_yet_again_shall_i_see_the_spring.en.md",
+    "Georgian Texts/Vazha Pshavela/Poems/13_what_created_me_a_human_being.en.md",
+    "Georgian Texts/Vazha Pshavela/Poems/12_loneliness.en.md",
+    "Georgian Texts/Vazha Pshavela/Poems/11_as_once_you_did_o_lady_as_once_you_did.en.md",
+    "Georgian Texts/Vazha Pshavela/Poems/10_consciences_song.en.md",
+    "Pasted image 20240613133124.png",
+    "Georgian Texts/Vazha Pshavela/Prose",
+    "Georgian Texts/Vazha Pshavela/Poems",
+    "Georgian Texts/Vazha Pshavela",
+    "Untitled",
+    "Sources/1-s2.0-S2949719123000225-main.pdf",
+    "Code/Georgian-tranlate-evaluation/Georgian Texts",
+    "Code/Georgian-tranlate-evaluation/Semantic Analysis Results/Visualizations/UMAP embeddings of Keywords/google_key.png",
+    "Code/Georgian-tranlate-evaluation/Semantic Analysis Results/Visualizations/All Text Chapter wise UMAP/chapter7_umap.png",
+    "Code/Georgian-tranlate-evaluation/Semantic Analysis Results/Visualizations/All Text Chapter wise UMAP/chapter5_umap.png",
+    "Code/Georgian-tranlate-evaluation/Semantic Analysis Results/Visualizations/All Text Chapter wise UMAP/chapter3_umap.png",
+    "Code/Georgian-tranlate-evaluation/Semantic Analysis Results/Visualizations/All Text Chapter wise UMAP/chapter17_umap.png",
+    "Code/Georgian-tranlate-evaluation/Semantic Analysis Results/Visualizations/All Text Chapter wise UMAP/chapter13_umap.png",
+    "Code/Georgian-tranlate-evaluation/Semantic Analysis Results/Visualizations/All Text Chapter wise UMAP/chapter10_umap.png",
+    "Code/Georgian-tranlate-evaluation/Sentiment Analysis Results/Heatmaps/heatmap.png",
+    "Code/Georgian-tranlate-evaluation/Sentiment Analysis Results/Chapterwise predicted sentiments bar plots/chapter 9 all.png",
+    "Code/Georgian-tranlate-evaluation/Semantic Analysis Results/Visualizations/UMAP embeddings of Keywords",
+    "Code/Georgian-tranlate-evaluation/Semantic Analysis Results/Visualizations/All Text Chapter wise UMAP",
+    "Code/Georgian-tranlate-evaluation/Semantic Analysis Results/KeyBert/Google_keyword.csv"
+  ]
+}
