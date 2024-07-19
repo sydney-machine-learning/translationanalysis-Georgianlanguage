@@ -1,3 +1,7 @@
-*.pth
-.venv
 labeledEn.csv
+*.pth
+*.pyc
+*.pyo
+.venv/
+runs/
+__pycache__/
