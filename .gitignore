@@ -4,4 +4,4 @@ labeledEn.csv
 *.pyo
 .venv/
 runs/
-__pycache__/
+**/__pycache__
