@@ -6,16 +6,14 @@ Even the topless trees are leaning on me from above, they themselves are bare, t
 They don't let direct rain fall on me: the rain can wash off the leaves at once. 
 Being leafless and dying are the same thing for me. 
 No, the trees: birch, beech, hazel, tamel, dudgula surround me and make me strong, they keep the rain dew with their branches and leaves and then they slowly sprinkle my mouth with one or two drops of dew, they wash my mouth. 
-I will sing my throat and miss, I wish I could sing, I wish the creator gave me the talent to have above me the sky and the clouds, the sun, these trees of my protection, these mountains, those marshes and the birds that dry, yellow in the leaves with red and green feathers before me. 
-They play with me and sometimes lick my mouth, they play with me, they enjoy my life. 
+I will sing my throat and miss, I wish I could sing, I wish the creator gave me the talent to have above me the sky and the clouds, the sun, these trees of my protection, these mountains, those marshes and the birds that dry, yellow in the leaves with red and green feathers before me. They play with me and sometimes lick my mouth, they play with me, they enjoy my life. 
 My life of one month is better than another's life of twenty-four months, but I miss a long life. 
 In the morning, a "beech-cheetah" chirped near me, it was a beautiful thing, red-throated, gabua; Like me, he liked himself, looked at his heart and shoulders; Everyone likes themselves, everyone enjoys life, everyone loves nature.
-The sky was thundering yesterday. 
-The thunder does not frighten us: the thunder brings rain, and the rain suckles us at the heart of the earth. 
+The sky was thundering yesterday. The thunder does not frighten us: the thunder brings rain, and the rain suckles us at the heart of the earth. 
 The sun is our father, he always looks at us and cares for us, he watches over us. 
-They are happy about the arrival of rain with plants, - they are happy, they gathered in the joy of Kelamdi; Now they will wear new dresses and khatibs. 
-It's been two days since my daughter Sasutela appeared; Rejoicing, rejoicing, the poor man keeps shaking his head up and down, playing with the earth, the sunlight, whispering to me, telling me tales about life and love; 
-Sometimes he even giggles, hugs me and kisses me. 
+They are happy about the arrival of rain with plants, - they are happy, they gathered in the joy of Kelamdi; 
+Now they will wear new dresses and khatibs. 
+It's been two days since my daughter Sasutela appeared; Rejoicing, rejoicing, the poor man keeps shaking his head up and down, playing with the earth, the sunlight, whispering to me, telling me tales about life and love; Sometimes he even giggles, hugs me and kisses me. 
 Yesterday morning my Dobil and I both cried.
 How unforgiving is a man?! 
 Whatever he sees, he wants to use it for his own benefit. 
@@ -33,6 +31,7 @@ Sasutela and I got shivers...
 I can't hear anything clearly, only some bubbling, gurgling, muffled noise coming from my chest.
 Wow, what a shame Yes, come to the mountain!
 Bechav will feel the cold, or he will tie a zipper on his head; 
-God gave it as water life is short The beauty of the country is from him It's one hundred seconds.
+God gave it as water life is short.
+The beauty of the country is from him It's one hundred seconds.
 Ia will start kissing He will say: "Wahmeo!
 If you gave birth to me, Lord, Why not have a great day, father?!
