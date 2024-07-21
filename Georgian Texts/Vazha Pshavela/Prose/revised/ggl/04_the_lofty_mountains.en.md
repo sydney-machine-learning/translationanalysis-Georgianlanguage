@@ -1,8 +1,61 @@
-They stood and waited. The expectations of the mountains are boundless, and the boundless sea stands in their heart. Red, blood clots in your chest. Outside, on the face, nothing but enmity can be seen.This is also a sign of expectation. Who knows what is going on in the heart of the mountains, what fire is boiling and overflowing.
-Mountains, mountains! What are you waiting for, who are you waiting for? Do you have a profit that you haven't seen in a long time? Will you lose a child? Do you have a brother or a mother who has gone far away and has not heard from you? There is no answer. They stand without raising an eyebrow. They are waiting, they are waiting and they will be waiting again. What will dry up the sea of ​​expectation in their hearts? It has no end, no end, like God...
-When all the souls, insects, grass, flowers, river and the restless, tireless breeze fall asleep, then only then will they sigh and shed tears. We, men, then say: Ah, what a heavy stone the bile is lifting on my heart.
-Why don't you sing, mountains?! Should I die without hearing your voice, your song! why don't you laugh At least show me your smile, guys! But how could you be enslaved, captured, subdued by one thought, that all other forces and signs of life were suppressed in your heart and mind?! no no. Sometimes you are happy too, and the country thinks that you don't feel anything. I know candles will light up in your heart when a delightful eagle will play on your head and rest on your lap. How beautiful you are then! How is it that your raised child is so brave, unyielding and beautiful. He is your Shikrikit. Tells God, tells your story…
-do you have any idea idea? feeling? don't you dream How not! So what are those beautiful flowers that decorate your heart? That is your dream, hope, consolation. Why do you cover yourself with frequent fogs, if you don't think about anything silently and you don't hide that thought from the children of man?! Why do you bring grass? Why do you go to cold springs? Why do you make avalanches? Why do you raise a lot of bulls? Who are you fooling, you guys!
-They stand and wait. The rain falls on their heads, the lightning strikes the golden cocoon, the lightning plays with their eyes and often hits them like an arrow in the heart. it's nothing. Half a mountain often collapses and falls into the ravine as an avalanche. Nothing like that, if the rock and boulders are still waiting. Go, those who do not want to be with us above, close to the sky, rest below.
-It is snowing. It is freezing. Cold. The stone breaks. They put sudar on the mountains as if they were dead. Bury us, cry for us, they call us. And we expect burial from them...
-They stand and wait. Their hearts hurt, they hurt a lot. But they don't die, they don't die. Who are they waiting for? or what something Yes, something. It is something to see. They saw and carried out what their eyes and hearts could reach. Their eyes and hearts have other new desires. Is this the greed of the eyes and heart? That's it.
+They stood and waited. 
+The expectations of the mountains are boundless, and the boundless sea stands in their heart. Red, blood clots in your chest. 
+Outside, on the face, nothing but enmity can be seen.
+This is also a sign of expectation. 
+Who knows what is going on in the heart of the mountains, what fire is boiling and overflowing.
+Mountains, mountains! 
+What are you waiting for, who are you waiting for? 
+Do you have a profit that you haven't seen in a long time? 
+Will you lose a child? 
+Do you have a brother or a mother who has gone far away and has not heard from you? 
+There is no answer. 
+They stand without raising an eyebrow. 
+They are waiting, they are waiting and they will be waiting again. 
+What will dry up the sea of ​​expectation in their hearts? 
+It has no end, no end, like God...
+When all the souls, insects, grass, flowers, river and the restless, tireless breeze fall asleep, then only then will they sigh and shed tears. 
+We, men, then say: Ah, what a heavy stone the bile is lifting on my heart.
+Why don't you sing, mountains?! 
+Should I die without hearing your voice, your song! 
+why don't you laugh 
+At least show me your smile, guys! 
+But how could you be enslaved, captured, subdued by one thought, that all other forces and signs of life were suppressed in your heart and mind?! 
+no no. Sometimes you are happy too, and the country thinks that you don't feel anything. 
+I know candles will light up in your heart when a delightful eagle will play on your head and rest on your lap. 
+How beautiful you are then! 
+How is it that your raised child is so brave, unyielding and beautiful. 
+He is your Shikrikit. Tells God, tells your story…
+do you have any idea idea? feeling? 
+don't you dream 
+How not! 
+So what are those beautiful flowers that decorate your heart? 
+That is your dream, hope, consolation. 
+Why do you cover yourself with frequent fogs, if you don't think about anything silently and you don't hide that thought from the children of man?! 
+Why do you bring grass? 
+Why do you go to cold springs? 
+Why do you make avalanches? 
+Why do you raise a lot of bulls? 
+Who are you fooling, you guys!
+They stand and wait. 
+The rain falls on their heads, the lightning strikes the golden cocoon, the lightning plays with their eyes and often hits them like an arrow in the heart. 
+it's nothing. 
+Half a mountain often collapses and falls into the ravine as an avalanche. 
+Nothing like that, if the rock and boulders are still waiting. 
+Go, those who do not want to be with us above, close to the sky, rest below.
+It is snowing. 
+It is freezing. 
+Cold. 
+The stone breaks. 
+They put sudar on the mountains as if they were dead. 
+Bury us, cry for us, they call us.
+And we expect burial from them...
+They stand and wait. 
+Their hearts hurt, they hurt a lot. 
+But they don't die, they don't die.
+Who are they waiting for? 
+or what something Yes, something. 
+It is something to see. 
+They saw and carried out what their eyes and hearts could reach. 
+Their eyes and hearts have other new desires. 
+Is this the greed of the eyes and heart? 
+That's it.
