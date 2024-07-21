@@ -6,14 +6,13 @@ The bearded trees also lean towards me from above, themselves bareheaded, they c
 They don't let the direct shower rain reach me: the rain can suddenly strip my leaves. 
 Being leafless and death are the same for me. 
 No, the trees: birch, beech, hazel, elm, hornbeam surround me and guard me, they keep the rain dew with their branches, leaves, and then slowly sprinkle one or two drops of dew on my face, they wash my face. 
-I stretch my neck and wish, if only I could sing, if only the creator had given me the talent, so that I could sing the high sky and clouds, the sun, these trees that protect me, these mountains, those meadows and colorful birds, which are black, yellow. 
-They crawl in front of me with red and green wings in the leaves and sometimes chirp in my mouth, play with me, they are happy with my life. 
+I stretch my neck and wish, if only I could sing, if only the creator had given me the talent, so that I could sing the high sky and clouds, the sun, these trees that protect me, these mountains, those meadows and colorful birds, which are black, yellow. They crawl in front of me with red and green wings in the leaves and sometimes chirp in my mouth, play with me, they are happy with my life. 
 My one month of life is better than twenty-four months of someone else's life, but I long for a long life. 
 In the morning, a "beech bird" sang near me, it was a beautiful thing - red-throated, colorful; he also liked himself like me, he looked at his heart and shoulders; Everyone likes themselves, everyone is happy with life, everyone loves nature.
-Yesterday the sky thundered. 
-Thunder does not scare us: thunder is a harbinger of rain, and rain suckles us on the breast of the earth. 
+Yesterday the sky thundered. Thunder does not scare us: thunder is a harbinger of rain, and rain suckles us on the breast of the earth. 
 The sun - the father, looks at us from above and caresses us, keeps an eye on us. 
-The arrival of rain makes the plants happy - they are happy, they are filled with joy up to their necks; Now they will put on new dresses and veils. 
+The arrival of rain makes the plants happy - they are happy, they are filled with joy up to their necks. 
+Now they will put on new dresses and veils. 
 These two days, my friend Sasutela also appeared; happy, happy poor thing, keeps shaking his head up and down, beats the earth, the sunlight, whispers to me, tells fairy tales about life, love; sometimes he even giggles, hugs me and kisses me. 
 Yesterday morning me and my friend both cried.
 How merciless is man?! 
@@ -26,7 +25,8 @@ A cuckoo's hood had sprung up beyond us and had not yet removed the fallen leave
 When the tree fell, it scattered leaves from above and turned red, tears flowed into its sunken heart.
 At noon, a tired and exhausted deer came and sat on a branch of an elder tree in front of us and started to hum. 
 He was also happy with the arrival of spring and that he saw the familiar place again in peace. 
-Suddenly the gun went off, the deer's voice died down, first it hung on the branch with its foot, then it fell down, it fell in front of me. Blood came out of his nose and he closed his eyes; The spilled blood dripped on the leaves. 
+Suddenly the gun went off, the deer's voice died down, first it hung on the branch with its foot, then it fell down, it fell in front of me. 
+Blood came out of his nose and he closed his eyes; The spilled blood dripped on the leaves. 
 Me and Sasutela shivered... 
 I don't understand anything clearly, only some buzzing, rumbling, dim rustling comes to me.
 Oh, what a pity Violet, who came to the mountain! 
