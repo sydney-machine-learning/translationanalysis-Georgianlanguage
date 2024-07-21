@@ -90,8 +90,7 @@ The eagle in anger struck out with his talon, and the raven with wings outstretc
 The eagle paid it no attention but continued as before calmly on his way, casting his eyes over the chasms below. 
 The second raven then withdrew. 
 The eagle passed over Sadzeriani and was lost my sight.
-Then from over Mt. 
-Akhuni a bearded vulture came into view. 
+Then from over Mt.Akhuni a bearded vulture came into view.  
 In its talons it held a bone with which it began to play; it hurls it onto the ground and then swoops down after it; then it carries it off — up, up high it goes, releases it from its talons and follows it all the way down again itself. 
 It cast this bone down several times and bore it up again.
 Shortly it drew close to me but could not see me — I was hidden beneath an ash, and Q’urshia was lying at my side. 
