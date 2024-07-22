@@ -20,8 +20,7 @@ It forces me to sport at its whim, while itself it howls, rages, clashes hither 
 But at that stage I am no longer what I am now at this moment when I first burst into life out of the boulder. 
 Oh, I’m terrified of this river! 
 How many times do I hear thereabouts folk flapping around agitatedly: “Someone’s drowning, help him! 
-Isn’t there a Christian among you?!” 
-And a portion of the blame rests on me. 
+Isn’t there a Christian among you?!” And a portion of the blame rests on me. 
 Woe is me! 
 Would that I had not been so appointed by the Creator and might have flowed on and on unceasingly, watering plants, the beautiful heart of the earth, quenching the thirst of both man and beast! 
 How happy I feel when I flow down amongst the butter-burs that are all about to wither, and they bow their heads to me, salute me and simultaneously weave for me a dress of their leaves. 
