@@ -1,9 +1,33 @@
-I was brought up in poverty, brother. For him, as long as I can walk, I am someone else's child. When I was seven years old, my father made me a guardian of the Great Qur'an, and during these five years, my father has been paying the mahta instead of me. At the end of the year, he comes to collect my money.He didn't even buy me a single knife. Oh, I wish my parents would bring me alive and what would we do!..
-Loneliness gave me strength: often four months would pass, I would not see a man with my eyes; Old Papuan, what kind of friendship will I have? Even coming to the apartment in the evening, sometimes I'm too lazy, he immediately starts yelling at me, yelling, "You look like a devil, you can't beat a sheep in grassy places." We don't want to look for grass in our mountains, thanks to the cross of Lashar!
-My inseparable companion day and night is in my ear. Let him change his master to Kurshiya, he will not oppress me! That day, Papurelt Tighuna was hunting grouse, my father was robbed by a mower. He was a sheep I laid on a plain of nuts; Zevida heard my voice - "Tilo, yes, Tilo"!
-– Who are you, enemy or friend? - Kvevida called me.
-– "Well, if you are a boy, come up, wrestler", - Tighuna told me with self-satisfaction. I was not afraid either, we wrestled. Tiguna was better with a saw, I was better with effort, "straight". Finally, he turned me around and grabbed me by the throat. My Kurshia saw that Tiguna was no longer joking, pushed him, pushed him and, if I didn't help him, he would have been torn to pieces. My corner has not yet been bitten by a dog; He is proud and big-hearted, he won't let me down if I beat him up for no reason, he won't look at me with Kheirian's eyes again in three days, - he said. The fur was cut off, Tiguna's new coat and red boots almost didn't wrap around him. Who will make me black, I won't say red, but they will give white?
-My father is a man with a dark heart, I don't blame him at all, I changed my mother again in my soul. These five were barely invited to the Didkurant Shina once a year. My mother was very happy to see me, she kissed me for a long time: "May my mother be my mother", she would say as many times as she kissed me. My mother gave me a pair of colorful socks; He had saved this red heart shirt for me too. He asked me everything in detail: - How are they treating you, Didikuraani? Has it been a long time, son, since you wore this leather? Sometimes they treat me badly, but how could I say bad things to my mother. When my mother saw my clothes, torn leather and fabric, she started a fight with my father: "Why did you put this bag in someone else's hand, why are you investigating the country?!" - she said this, with tears of the size of a hazelnut heart falling from her eyes and filling her skirt. I heard too, shook my head and started crying.
+I was brought up in poverty, brother. 
+For him, as long as I can walk, I am someone else's child. 
+When I was seven years old, my father made me a guardian of the Great Qur'an, and during these five years, my father has been paying the mahta instead of me.
+At the end of the year, he comes to collect my money.
+He didn't even buy me a single knife. 
+Oh, I wish my parents would bring me alive and what would we do!..
+Loneliness gave me strength: often four months would pass, I would not see a man with my eyes; Old Papuan, what kind of friendship will I have?
+Even coming to the apartment in the evening, sometimes I'm too lazy, he immediately starts yelling at me, yelling, "You look like a devil, you can't beat a sheep in grassy places." 
+We don't want to look for grass in our mountains, thanks to the cross of Lashar!
+My inseparable companion day and night is in my ear. 
+Let him change his master to Kurshiya, he will not oppress me! 
+That day, Papurelt Tighuna was hunting grouse, my father was robbed by a mower. 
+He was a sheep I laid on a plain of nuts, Zevida heard my voice - "Tilo, yes, Tilo"!
+Who are you, enemy or friend? - Kvevida called me.
+"Well, if you are a boy, come up, wrestler", Tighuna told me with self-satisfaction. 
+I was not afraid either, we wrestled. 
+Tiguna was better with a saw, I was better with effort, "straight". 
+Finally, he turned me around and grabbed me by the throat. 
+My Kurshia saw that Tiguna was no longer joking, pushed him, pushed him and, if I didn't help him, he would have been torn to pieces. 
+My corner has not yet been bitten by a dog; He is proud and big-hearted, he won't let me down if I beat him up for no reason, he won't look at me with Kheirian's eyes again in three days, he said.
+The fur was cut off, Tiguna's new coat and red boots almost didn't wrap around him. 
+Who will make me black, I won't say red, but they will give white?
+My father is a man with a dark heart, I don't blame him at all, I changed my mother again in my soul. 
+These five were barely invited to the Didkurant Shina once a year. 
+My mother was very happy to see me, she kissed me for a long time: "May my mother be my mother", she would say as many times as she kissed me. 
+My mother gave me a pair of colorful socks; He had saved this red heart shirt for me too.
+He asked me everything in detail: How are they treating you, Didikuraani? 
+Has it been a long time, son, since you wore this leather? 
+Sometimes they treat me badly, but how could I say bad things to my mother. 
+When my mother saw my clothes, torn leather and fabric, she started a fight with my father: "Why did you put this bag in someone else's hand, why are you investigating the country?!" - she said this, with tears of the size of a hazelnut heart falling from her eyes and filling her skirt. I heard too, shook my head and started crying.
 My mother washed my underwear, sewed a cloth for me, oiled my skin and put it on me like that. For a long time, I didn't eat Tsminda's bread anymore, and my mother baked a cube for me, borrowed Tsminda's flour from the waiting people, "closed" me in an erbo and fed it to me. My heart returned home, I didn't want to go to the sheep anymore. I wonder why I follow my father as someone else's son? They will not send me the Great Quran once at a wedding, not even in an icon... Your wedding is a sheep, they say. I will remember the play of women in red dresses, the sound of my legs, the song and my heart will die...
 The wolf suffers terribly. I wish I had a knife to open it up and open it. You blackmailed my mother, bought me some bullets and medicine, and asked my father for a Dambacha. He promised me, but I don't know if he will fulfill his promise or not. If I find a deer, I will throw away the feathers of the grouses and grouses, if they don't attack me now and, where I don't think, the grouses will raise their horns on the top of the rock, sometimes they will rock an avalanche of sand, and the grouses will take out their feathers in front of me - well, don't attack me then!
 During my stay at home, the son of our priest Vaso came. He told me that there is a lot of ammunition and drugs in the city. I wish he had given me... Ah, I wish I was educated too! Vaso told me how many things he had seen and heard. However, Papua told me that the sky is Dindglisa, but Vaso, when I told him this, started to laugh, why didn't he melt here.
