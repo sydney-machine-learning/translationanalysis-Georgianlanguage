@@ -1,2 +1,49 @@
-I have never committed a sin in my life. Not a single soul, not even an inanimate one, can speak of my sin or my evil. God has ordained me to flow, to flow continuously; everyone must quench their thirst with me. On a scorching summer day, many animals come to drink my water. Many tired workers come, bringing their scythes and sickles to sharpen. People drink me, and one in a thousand may say, "Bless you, cool mountain spring, what wine can compare to you?!" Most spit on me. What can I do? I cannot spit on anyone. Let them spit on me! How happy I feel, God! What good friends I have around me! Look at these stones, covered with thick green moss; look at the yellow rock standing above me, watching over me like a helmet. These cliff-like peaks rise to the sky, blocking the sun's rays from reaching me! Thick, snake-like roots are coiled in my bosom. For only two or three versts in length, I am happy and innocent, then the enormous river swallows me, my name and identity are lost. It tosses me around as it pleases. It roars and rages, tears up the earth, uproots trees, and carries them away, making me do the same. But then, I am no longer what I am now, at this moment, when I first spring from the rock. Oh, my heart is torn by this river! How often I hear people shouting: "The water has taken a man, help, doesn't anyone believe in God?!" I am partly to blame too. Alas, my poor self!  
-I wish my creator had not ordained me this way and had let me flow endlessly, to quench the thirst of plants, the beautiful heart of the earth, to satisfy the thirst of humans and animals! How happy I feel when I pass by a plant prepared to wither, and it bows to me, greeting me, sewing its leafy dress for me. Then, as I babble through the dense forest, they surround me and shout with love: "Hail to the mountain spring, hail!" Now, I soften the dried roots of hazels and chestnuts trampled by an avalanche and make them look up... Oh, God, why do you let that tedious, troublesome, restless river spoil my efforts! What a bad dream I had last night!... Creator, protector, preserver, make it come true well!... I dreamed that I was perishing. A great drought had set in; the grass, the trees, my parents, were withering, and I was almost dry. A beautiful "pine bird" flew down from a poplar branch and wanted to bathe in my pool, but could not wet its shoulders and began to cry. Seeing this, my heart broke: "Where will you go, my benefactor," I murmured. Withered ferns, brambles, birches, lindens, and chestnuts, all together were agitated: "Let's give water to the spring, don't let it dry up!" They extended drops from their leaves, branches, and roots, but it was not enough to save me. It seemed as if the earth opened its mouth and was about to swallow me into an endless abyss. I got scared and woke up. My heart was trembling, sweat covered my forehead. I looked up, the gorges were filled with mist. The branches of the pine tree struck me, rocked my cradle, and murmured: "Do not be afraid, little one, you will not dry up, you will not be lost." At that moment, a cautious and vigilant deer with beautiful horns came rushing, drank my pure water, quenched its thirst, and left. Then, feeling at peace, I said: "I am not dry, I am not!"
+I have never committed a sin in my life. 
+Not a single soul, not even an inanimate one, can speak of my sin or my evil.
+God has ordained me to flow, to flow continuously; everyone must quench their thirst with me.
+On a scorching summer day, many animals come to drink my water. 
+Many tired workers come, bringing their scythes and sickles to sharpen. 
+People drink me, and one in a thousand may say, "Bless you, cool mountain spring
+what wine can compare to you?!" 
+Most spit on me. 
+What can I do? 
+I cannot spit on anyone. 
+Let them spit on me! 
+How happy I feel, God! 
+What good friends I have around me! 
+Look at these stones, covered with thick green moss; look at the yellow rock standing above me, watching over me like a helmet. 
+These cliff-like peaks rise to the sky, blocking the sun's rays from reaching me! 
+Thick, snake-like roots are coiled in my bosom. 
+For only two or three versts in length, I am happy and innocent
+then the enormous river swallows me, my name and identity are lost. 
+It tosses me around as it pleases. It roars and rages, tears up the earth, uproots trees, and carries them away, making me do the same.
+But then, I am no longer what I am now, at this moment, when I first spring from the rock. 
+Oh, my heart is torn by this river! 
+How often I hear people shouting: "The water has taken a man, help, 
+doesn't anyone believe in God?!" I am partly to blame too. 
+Alas, my poor self!  
+I wish my creator had not ordained me this way and had let me flow endlessly, to quench the thirst of plants, the beautiful heart of the earth, to satisfy the thirst of humans and animals! 
+How happy I feel when I pass by a plant prepared to wither, and it bows to me, greeting me, sewing its leafy dress for me. 
+Then, as I babble through the dense forest, they surround me and shout with love: "Hail to the mountain spring, hail!" 
+Now, I soften the dried roots of hazels and chestnuts trampled by an avalanche and make them look up... 
+Oh, God, why do you let that tedious, troublesome, restless river spoil my efforts! 
+What a bad dream I had last night!...
+Creator,
+protector,
+preserver, 
+make it come true well!...
+I dreamed that I was perishing. 
+A great drought had set in
+the grass, the trees, my parents, were withering, and I was almost dry.
+A beautiful "pine bird" flew down from a poplar branch and wanted to bathe in my pool, but could not wet its shoulders and began to cry. 
+Seeing this, my heart broke: "Where will you go, my benefactor," I murmured. 
+Withered ferns, brambles, birches, lindens, and chestnuts, all together were agitated: "Let's give water to the spring
+don't let it dry up!" 
+They extended drops from their leaves, branches, and roots, but it was not enough to save me. 
+It seemed as if the earth opened its mouth and was about to swallow me into an endless abyss. 
+I got scared and woke up.
+My heart was trembling, sweat covered my forehead. 
+I looked up, the gorges were filled with mist.
+The branches of the pine tree struck me, rocked my cradle, and murmured: "Do not be afraid, little one, you will not dry up, you will not be lost." 
+At that moment, a cautious and vigilant deer with beautiful horns came rushing, drank my pure water, quenched its thirst, and left. 
+Then, feeling at peace, I said: "I am not dry, I am not!"
