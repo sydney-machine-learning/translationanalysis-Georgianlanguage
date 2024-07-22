@@ -24,8 +24,7 @@ My father is a heartless man, I don't pity him at all, I cherish my mother's mem
 In these five years, they've only let me visit my mother at the Didghura house once.
 My mother was so happy to see me, she kissed me for a long time: "May my poor child be blessed," she would say every time she kissed me.
 My mother gave me a pair of colorful socks; she had also saved this red-collared shirt for me.
-She asked me everything in detail: "How do the Didghuras treat you? 
-Do they beat you or starve you? 
+She asked me everything in detail: "How do the Didghuras treat you? Do they beat you or starve you? 
 How long have you had these rags on your body, my child?" 
 The Didghuras do treat me badly, but how could I tell my mother that? 
 When my mother saw my clothes, the torn leather and rags, she started arguing with my father: "Damn you, why did you give this child away to strangers, 
