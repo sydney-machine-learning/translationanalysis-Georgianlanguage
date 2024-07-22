@@ -1,5 +1,44 @@
-"Don't be afraid, we are not snakes. What would a snake want on this high mountain? You startled for no reason, we don't harm humans, we don't poison them. Did our wrinkled, dry skin scare you? Once upon a time, we had a different color and appearance. Time, the course of events, changed our face, and now, if a shepherd or a hunter comes across us, they must be startled until they realize that we are just the dried roots of an oak tree and nothing else. Once upon a time, we nourished a huge oak tree, provided it with sustenance, nursed it. With our sweat, with our labor, the oak proudly rustled its leaves. We were proud of ourselves for raising such a beautiful, unwavering, and proud child.
-"You and your oak tree wanted my strength, my creation," the earth would often say to us; but we, with our necks outstretched, would still beg for sustenance for our beloved child. For its sake, we worked day and night. 'Let's not deprive it of nourishment, let's try,' we would encourage each other with these words, 'Rest, earth, rest. We won't bother you anymore. The one we cherished and pleaded for is no longer with us, we are also drying up, what use is nourishment for the dry and dead? A man, a merciless human, killed our heart, killed our child, and left us in tears. He stood up and started cutting with an axe; he didn't hear our moans and the moans of our child. When they strike us with an axe, we moan, and you humans call it 'creaking.' Blood flows from us, and you call our blood 'tree sap'... Just because we don't raise a hand, don't scratch anyone's face, don't curse, don't chase after those who leave, and don't greet newcomers with anger, doesn't mean we don't feel anything?! 'I'm cutting the oak tree,' the man called out to his companion, as if it were nothing. He didn't see that we were silently shedding tears into the earth, that our sin and guilt had made the earth cry too. 'Poor things,' she would mutter, 'For what, for whom did you labor? And for whom do I labor, who is there to thank me?!'
-Although the earth said this, at the same time she was offering support to the roots of the beech, birch, and alder trees that had grown from afar... She cannot refuse anyone, this blessed one from God. She is a mother to all, she cares for all, everyone depends on her. Blessed be your breast, our mother, our nurturer, our provider!
-But what can the poor thing do? Fate has cursed her too. Yesterday and today we cried a lot, we regret leaving the place where we were born, raised, where we felt life. Who knows what awaits us?! Day by day our home collapses, crumbles, becomes flat, and we are left homeless, wet, and hungry. Eventually, we will break off and fall headfirst, sinking into the dense ravine. Who knows what awaits us there? Who knows what kind of soil we will find? Will we die completely, or will the earth cover us again and provide us with sustenance?! Who knows, maybe the crazy river will scatter us somewhere in a desolate place, and the harsh rays of the sun will wither us, dry us up, erase our memory!
-God, don't let us perish! Fate, don't curse us. Earth, give us a home again! We crave life and work, we want to work again, maybe we can raise another child on our roots, maybe we can feel joy again. Forces of nature, heed the plea of the poor roots.
+"Don't be afraid, we are not snakes.
+What would a snake want on this high mountain? 
+You startled for no reason, we don't harm humans, we don't poison them. 
+Did our wrinkled, dry skin scare you?
+Once upon a time, we had a different color and appearance. 
+Time, the course of events, changed our face, and now, if a shepherd or a hunter comes across us, they must be startled until they realize that we are just the dried roots of an oak tree and nothing else. 
+Once upon a time, we nourished a huge oak tree, provided it with sustenance, nursed it. 
+With our sweat, with our labor, the oak proudly rustled its leaves. 
+We were proud of ourselves for raising such a beautiful, unwavering, and proud child.
+"You and your oak tree wanted my strength, my creation," the earth would often say to us; but we, with our necks outstretched, would still beg for sustenance for our beloved child. 
+For its sake, we worked day and night. 
+'Let's not deprive it of nourishment, let's try,' we would encourage each other with these words
+'Rest, earth, rest. 
+We won't bother you anymore. 
+The one we cherished and pleaded for is no longer with us, we are also drying up, what use is nourishment for the dry and dead? 
+A man, a merciless human, killed our heart, killed our child, and left us in tears. 
+He stood up and started cutting with an axe; he didn't hear our moans and the moans of our child. 
+When they strike us with an axe, we moan, and you humans call it 'creaking.' 
+Blood flows from us, and you call our blood 'tree sap'... 
+Just because we don't raise a hand, don't scratch anyone's face, don't curse, don't chase after those who leave, and don't greet newcomers with anger, doesn't mean we don't feel anything?! 
+'I'm cutting the oak tree,' the man called out to his companion, as if it were nothing.
+He didn't see that we were silently shedding tears into the earth, that our sin and guilt had made the earth cry too. 'Poor things,' she would mutter, 'For what, for whom did you labor? 
+And for whom do I labor
+who is there to thank me?!'
+Although the earth said this, at the same time she was offering support to the roots of the beech, birch, and alder trees that had grown from afar...
+She cannot refuse anyone, this blessed one from God. 
+She is a mother to all, she cares for all, everyone depends on her.
+Blessed be your breast, our mother, our nurturer, our provider!
+But what can the poor thing do? 
+Fate has cursed her too. 
+Yesterday and today we cried a lot, we regret leaving the place where we were born, raised, where we felt life. 
+Who knows what awaits us?! 
+Day by day our home collapses, crumbles, becomes flat, and we are left homeless, wet, and hungry. 
+Eventually, we will break off and fall headfirst, sinking into the dense ravine.
+Who knows what awaits us there?
+Who knows what kind of soil we will find? 
+Will we die completely, or will the earth cover us again and provide us with sustenance?! 
+Who knows, maybe the crazy river will scatter us somewhere in a desolate place, and the harsh rays of the sun will wither us, dry us up, erase our memory!
+God, don't let us perish! 
+Fate, don't curse us. 
+Earth, give us a home again! 
+We crave life and work
+we want to work again, maybe we can raise another child on our roots, maybe we can feel joy again. 
+Forces of nature, heed the plea of the poor roots.
