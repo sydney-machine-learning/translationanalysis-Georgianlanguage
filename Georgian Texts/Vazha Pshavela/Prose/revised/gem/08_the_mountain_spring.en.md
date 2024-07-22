@@ -20,8 +20,7 @@ It will play with me however it wants. It roars, rages, crashes here and there, 
 But then I am no longer what I am now, at this moment, when I am first born from the cliff. 
 Oh, my heart is breaking because of this river!
 How many times have I heard people screaming here: "The water has swept away a man, help
-doesn't anyone believe in God?!" 
-It's not a small thing, I am also blamed. 
+doesn't anyone believe in God?!" It's not a small thing, I am also blamed. 
 Oh, woe is me!
 I wish the Creator had not ordained me this way, and I could flow endlessly, water the plants, the beautiful heart of the earth, quench the thirst of humans and animals! 
 How happy I feel when I pass by a wilting fern, and it embraces me, greets me, and sews me a dress from its leaves. 
