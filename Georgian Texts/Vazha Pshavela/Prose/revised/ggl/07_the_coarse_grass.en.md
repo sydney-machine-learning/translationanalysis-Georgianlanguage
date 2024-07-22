@@ -83,8 +83,7 @@ don't lose my life
 don't dig me up
 don't uproot me!
 Upward, Turfav, beautiful! 
-The sun of your beauty, look at me at least once in a thousand
-appreciate your smile! 
+The sun of your beauty, look at me at least once in a thousand appreciate your smile! 
 I'm poor, I'm a dirty street, have mercy on me! 
 You mountain breeze, life-giving spirit of nature! 
 Cool me, cool my hot heart!
