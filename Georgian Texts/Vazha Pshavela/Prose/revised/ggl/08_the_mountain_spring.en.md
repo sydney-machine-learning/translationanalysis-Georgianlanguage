@@ -1,2 +1,49 @@
-I have not sinned anything in my life. No soul, even soulless, can tell about my sin, my weakness.I have been ordained by God: I must see, see; Everyone should quench their thirst with me. On a hot summer day, how many game come to drink my water. How many tired and exhausted workers will come, bring a scythe, a scythe for pruning. A man listens to me and if one in a thousand says: "Bless you, cold mountain spring, what wine can compare to you?!" Most of them spit on me. What can I do, I can't spit on anyone. Hey, they spit on me again! How happy I feel, God! What good friends take me by my side! Here, first, these boulders, thickly covered with green moss; Here, if a yellow rock is piled up on my head and falls on me, it covers my head like a helmet. How do these goddess-like Khorafs reach heaven and do not even let the sun's rays reach me! Thick, snake-like roots were planted in my lap. For the length of two or three verses, I am only happy and sinless, then I will be drunk, swallowed by a huge river, my name, my identity will be lost. He plays me as he should. Each of them roars, roars, stumbles here and there, destroys the earth, tears the trees and drags me along. But then I am no longer what I am now, at this moment, when I am born from the rock for the first time. Oh, my heart is broken by this river! How many times do I hear the cries of people here: "The water left the man, help him, you don't believe in God!" Wow, my head!
-I wish I hadn't imposed this on the creator, and I would never end Medina, water the plants, the beautiful heart of the earth, quench the thirst of men and animals! How happy I feel when I go to the Buera made for drying and she hugs me, greets me, and sews a dress with her leaves. Then when I crawl into Chadunyan and they also surround me and call me with truffles: "Long live the spring of the mountain, long live!" Now I'll look up at the broken roots of hazelnuts and brambles crushed by the avalanche and look up... Oh, God, why do you spoil that tial, huge, restless, restless river? ! What a bad dream I had last night!.. God, the creator, our owner, our saver, forgive me well!.. I saw that I was dying. There was a drought, a great drought; The grass, the tree, my parents, became thin, I almost dried up. Ghabua, a beautiful "beetle" flew down from a poplar branch and wanted to swim in my puddle, but she couldn't get her shoulders wet anymore and started crying. I saw this and my heart was dying: "Where are you going, my love?" I hesitated. Shredded dike, supka, shambi, birch, lime and urdzan, - all of them worried together: - "Let's save the spring water, don't let it destroy us!". Leaves, branches, and roots provide me with one or two dews, but they can't help me anymore. And as if the earth had closed my mouth and I had to perish in the endless abyss. I was scared and woke up. My heart was trembling, sweat was pouring on my forehead. I looked up, the ravine was covered with fog. Khoraf tied the branches to me, cradled me and whispered to me: "Don't be afraid, little one, you won't dry up, you won't get lost!" At that time, cautious and prudent during the day, the "gorgeous beautiful" deer, with its antlers on its back, rushed, fell on my holy water, drank and drank. Then I calmly said: - "I'm not dry, no!"
+I have not sinned anything in my life. 
+No soul, even soulless, can tell about my sin, my weakness.
+I have been ordained by God: I must see, see; Everyone should quench their thirst with me. 
+On a hot summer day, how many game come to drink my water. 
+How many tired and exhausted workers will come, bring a scythe, a scythe for pruning. 
+A man listens to me and if one in a thousand says: "Bless you, cold mountain spring
+what wine can compare to you?!" 
+Most of them spit on me. 
+What can I do
+I can't spit on anyone. 
+Hey, they spit on me again! 
+How happy I feel, God! 
+What good friends take me by my side! 
+Here, first, these boulders, thickly covered with green moss; Here, if a yellow rock is piled up on my head and falls on me, it covers my head like a helmet. 
+How do these goddess-like Khorafs reach heaven and do not even let the sun's rays reach me! 
+Thick, snake-like roots were planted in my lap. 
+For the length of two or three verses, I am only happy and sinless
+then I will be drunk, swallowed by a huge river, my name, my identity will be lost. 
+He plays me as he should. Each of them roars, roars, stumbles here and there, destroys the earth, tears the trees and drags me along. 
+But then I am no longer what I am now, at this moment, when I am born from the rock for the first time.
+Oh, my heart is broken by this river! 
+How many times do I hear the cries of people here: "The water left the man, help him
+you don't believe in God!" 
+Wow, my head!
+I wish I hadn't imposed this on the creator, and I would never end Medina, water the plants, the beautiful heart of the earth, quench the thirst of men and animals! 
+How happy I feel when I go to the Buera made for drying and she hugs me, greets me, and sews a dress with her leaves. 
+Then when I crawl into Chadunyan and they also surround me and call me with truffles: "Long live the spring of the mountain, long live!" 
+Now I'll look up at the broken roots of hazelnuts and brambles crushed by the avalanche and look up... 
+Oh, God, why do you spoil that tial, huge, restless, restless river? ! 
+What a bad dream I had last night!.. 
+God, the creator
+our owner
+our saver
+forgive me well!.. 
+I saw that I was dying. 
+There was a drought, a great drought; 
+The grass, the tree, my parents, became thin, I almost dried up. 
+Ghabua, a beautiful "beetle" flew down from a poplar branch and wanted to swim in my puddle, but she couldn't get her shoulders wet anymore and started crying. 
+I saw this and my heart was dying: "Where are you going, my love?" I hesitated. 
+Shredded dike, supka, shambi, birch, lime and urdzan, - all of them worried together: - "Let's save the spring water
+don't let it destroy us!". 
+Leaves, branches, and roots provide me with one or two dews, but they can't help me anymore.
+And as if the earth had closed my mouth and I had to perish in the endless abyss. 
+I was scared and woke up. 
+My heart was trembling, sweat was pouring on my forehead. 
+I looked up, the ravine was covered with fog. 
+Khoraf tied the branches to me, cradled me and whispered to me: "Don't be afraid, little one, you won't dry up, you won't get lost!" 
+At that time, cautious and prudent during the day, the "gorgeous beautiful" deer, with its antlers on its back, rushed, fell on my holy water, drank and drank. 
+Then I calmly said: - "I'm not dry, no!"
