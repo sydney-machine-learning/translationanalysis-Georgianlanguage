@@ -24,8 +24,7 @@ My father’s heart is black as night; I have absolutely no pity for him, but my
 During these past five years only once has the Didq’ura family grudgingly allowed me a visit home. 
 “Would that his mother could swap places with my poor little darling!” my mother would repeat as often as she showered kisses upon me. 
 She gave me a pair of multi-coloured socks, and she had also kept to one side for me this shirt with its red centre. 
-She plied me with questions about everything in great detail: “How does the Didq’ura family treat you? 
-They don’t beat or starve you, do they? 
+She plied me with questions about everything in great detail: “How does the Didq’ura family treat you? They don’t beat or starve you, do they? 
 Have you been wearing these skins for long, my son?” 
 They never treat me any way other than badly, but how could I have spoken ill of them to my mother? 
 When she saw my clothes, my hides and shepherd’s felt-cloak all in rags, she began to take issue with my father: “You scoundrel, why did you cast this lad out into others’ hands? 
