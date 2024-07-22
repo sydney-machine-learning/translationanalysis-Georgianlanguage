@@ -52,10 +52,35 @@ An old female wolf was the most resentful and furious.
 "you've saddened me many times, you cursed, you damned
 you've saddened me many times, you've embittered the days of my life. 
 Many times I've stained my nose, mouth, paws, and chest with the blood of many animals; for two whole weeks I've adorned myself with this blood, and the sight of it on my body quenches my thirst for killing. 
-Oh, moon, if only I could sink my sharp teeth into you once, if only I could adorn my shoulders and fingers with your blood, like the brave young Totia."
-The rest of them thought the same,still baring their teeth, and stared at the moon: the moon was rising higher and higher, it rose in the sky; it illuminated the roots of trees and rocks in the forest, dark ravines, as well as dark corners in the village, the ruins of fortresses and ancient buildings, it lit candles on the black stones of the cemetery with its rays; even the cemetery looked graceful and alive. All hope of hunting and raiding was dashed. Day's scales are night. What could they do? Their hope was shattered, they lost their courage, they started looking at each other; they thought, they chose, who among us is expendable, edible. One was ready to attack another and tear it in half.
-Old Totia, with his head down, was huddled in the back of the pack, lost in thought; he had seen a lot of hunger and experienced a lot of hardship, but he wasn't particularly worried, even now he was hunting with the hope of others; the young wolves would share their food with him.
-"Totia, hey, can't you hear?! What are you brooding over, can't you see what's happening? We're dying of hunger, the wolf lineage is about to disappear from the face of the earth. What does your remedy say, uncle?" said one wolf to him, hitting him on the head with a branch.
+Oh, moon, if only I could sink my sharp teeth into you once
+if only I could adorn my shoulders and fingers with your blood, like the brave young Totia."
+The rest of them thought the same,still baring their teeth, and stared at the moon
+the moon was rising higher and higher, it rose in the sky; it illuminated the roots of trees and rocks in the forest, dark ravines, as well as dark corners in the village, the ruins of fortresses and ancient buildings, it lit candles on the black stones of the cemetery with its rays; even the cemetery looked graceful and alive. 
+All hope of hunting and raiding was dashed. 
+Day's scales are night. 
+What could they do? 
+Their hope was shattered, they lost their courage, they started looking at each other; they thought, they chose, who among us is expendable, edible. 
+One was ready to attack another and tear it in half.
+Old Totia, with his head down, was huddled in the back of the pack, lost in thought
+he had seen a lot of hunger and experienced a lot of hardship, but he wasn't particularly worried, even now he was hunting with the hope of others; the young wolves would share their food with him.
+"Totia, hey, can't you hear?!
+What are you brooding over
+can't you see what's happening? 
+We're dying of hunger, the wolf lineage is about to disappear from the face of the earth.
+What does your remedy say, uncle?" said one wolf to him, hitting him on the head with a branch.
 "What are you doing, you fool, you insolent Viro?" said the old wolf angrily. The other wolves perked up their ears, sensing the situation.
-"Well, what?!" they all roared together: "You deserve it, you fool, one branch on someone like you is not enough. Bite him, bite him; this light is all his fault!" - they growled. They didn't let him go for long and added their teeth to their paws...
-"Guys, be smart, be smart! What are you doing, you fools?" Totia mumbled and bared his teeth at one, then another, but who would be scared of his bared teeth? In an instant, Totia's life ended; along with his body, his spirit also perished. Not even a single hair of his long-suffering fur was left. If you could find a trace of blood somewhere, that was it. The wolves' hearts calmed down a little, but they were still hungry. They looked at each other, afraid of each other, probably thinking - don't eat me now. They were scared and cautious. They avoided each other, rustling could be heard in the bushes, along with the crunching of snow... The moon had risen, it had floated high, almost in the middle of the sky, shining brightly, and from there, like a guardian, it was protecting the earth from the enemy... And the wolves were running aimlessly through the forest, and the words "It's dawn, it's dawn!" were on everyone's lips.
+"Well, what?!" they all roared together
+"You deserve it, you fool, one branch on someone like you is not enough. 
+Bite him, bite him; this light is all his fault!" they growled. 
+They didn't let him go for long and added their teeth to their paws...
+"Guys, be smart, be smart! What are you doing, you fools?" Totia mumbled and bared his teeth at one, then another
+but who would be scared of his bared teeth? 
+In an instant, Totia's life ended; along with his body, his spirit also perished. 
+Not even a single hair of his long-suffering fur was left. 
+If you could find a trace of blood somewhere, that was it. 
+The wolves' hearts calmed down a little, but they were still hungry. 
+They looked at each other, afraid of each other, probably thinking - don't eat me now. 
+They were scared and cautious. 
+They avoided each other, rustling could be heard in the bushes, along with the crunching of snow... 
+The moon had risen, it had floated high, almost in the middle of the sky, shining brightly, and from there, like a guardian, it was protecting the earth from the enemy... 
+And the wolves were running aimlessly through the forest, and the words "It's dawn, it's dawn!" were on everyone's lips.
