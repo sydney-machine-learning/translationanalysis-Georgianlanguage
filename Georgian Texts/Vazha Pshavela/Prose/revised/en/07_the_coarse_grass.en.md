@@ -83,8 +83,7 @@ Do not allow the life to escape them!
 Do not uproot me! 
 Do not cast me up!
 Beautiful, darling, heliotrope! 
-By the radiance of your beauty, just once in a thousand whiles glance nevertheless over at me! 
-Deem me worthy of your smile! 
+By the radiance of your beauty, just once in a thousand whiles glance nevertheless over at me! Deem me worthy of your smile! 
 I am just poor, miserable mountain-grass, take pity on me! 
 O mountain-breeze, Nature’s life-giving spirit! 
 Breathe upon me and cool my burning heart!
