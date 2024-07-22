@@ -83,8 +83,7 @@ don't let my life be lost
 don't uproot me
 don't throw me away!
 Daisy, delicate, beautiful one! 
-Sun of your beauty, look at me at least once in a thousand times
-grant me your smile!
+Sun of your beauty, look at me at least once in a thousand times, grant me your smile!
 I am a poor, wretched grass, have pity on me!
 Mountain breeze, life-giving spirit of nature! 
 Blow on me, cool my burning heart!
