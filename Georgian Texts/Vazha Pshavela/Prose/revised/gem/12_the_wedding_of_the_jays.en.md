@@ -79,8 +79,8 @@ The magpie joined him, and they both danced the lezginka.
 The crows were holding their stomachs, they were laughing so hard at this sight.
 "Ugh, I'm tired," said the mouse finally; indeed, sweat was dripping from his face and chest.
 He lay down right there near the table. He turned his bulging belly towards the sky and snored.
-Finally, the nightingale was sitting at the table; the singing bird was not celebrating,
-not laughing, he was watching the spectacle, sad and thoughtful.
+Finally, the nightingale was sitting at the table.
+the singing bird was not celebrating,not laughing, he was watching the spectacle, sad and thoughtful.
 "Beautiful nightingale, why don't you let us hear your beautiful voice?" the birds asked the nightingale.
 The nightingale refused; he said, "I'm not always in the mood for singing, I'm feeling down."
 As it happened, the birds' pleading and begging worked, and the nightingale started singing. 
