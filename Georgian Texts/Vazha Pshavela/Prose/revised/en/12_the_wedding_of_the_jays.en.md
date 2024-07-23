@@ -79,8 +79,8 @@ A magpie accompanied him and together they danced a Georgian jig.
 The ravens had to hold on to their stomachs; to such an extent were the onlookers of this spectacle rollicking with laughter.
 “Oh, I’m whacked,” said the mouse at last; and indeed sweat was pouring over his face and chest. 
 He flopped down right there beside the table; his pot-belly projected upwards, and, in that supine posture, he began to pant.
-Right at the end of the table was sitting a nightingale; this songster-bird was not participating in the festivities. 
-She was not laughing but was observing the proceedings with a heavy and contemplative heart.
+Right at the end of the table was sitting a nightingale; 
+this songster-bird was not participating in the festivities. She was not laughing but was observing the proceedings with a heavy and contemplative heart.
 “Beautiful nightingale, why do you not treat us to your beautiful voice?” the birds entreated her mildly.
 The nightingale declined, saying: “Do you suppose that I’m always in a mood for singing? — I’m afraid I’m out of sorts.”
 At length, the birds’ supplications and entreaties had an effect on her, and she began to sing. 
