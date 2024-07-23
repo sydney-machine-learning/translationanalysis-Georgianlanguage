@@ -79,8 +79,8 @@ The magpie followed him, and they both looked away.
 The crows were holding their bellies with their hands, so many people were laughing at this picture.
 Oh, I'm tired, said the mouse at last.
 It really spread to the mouth and chest. He lay down near the table. He raised the bulging bird to the sky and screamed.
-At the very end, a nightingale was sitting on the table; The singing bird did not sing
-did not laugh, He looked at Seir thoughtfully.
+At the very end, a nightingale was sitting on the table; 
+The singing bird did not sing, did not laugh, He looked at Seir thoughtfully.
 Beautiful nightingale, why don't you make us hear your beautiful voice? they asked the nightingale about the birds.
 The nightingale refused; "Am I always in the mood for a song, I'm going crazy," he said.
 As it was, the begging-mudara of the birds stopped and the nightingale also started. 
