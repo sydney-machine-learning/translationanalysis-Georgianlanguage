@@ -41,7 +41,6 @@ Hunters have seen the mother tiger and her cubs' tracks around the dry beech.
 “I will pick mushrooms from the dry beech,” says another.
 Indeed, the foolish trees do not know that the people have not forgotten the name of the dry beech, they still remember its greatness.
 Is everything that is dry to be despised by man?  
-
 Many a living thing is much less than one dead.  
 Seeing you, desolate one, fills my heart with intense sorrow, seeing you so pitiable and orphaned. 
 As if a mourning bell has tolled.  
