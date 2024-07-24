@@ -1,0 +1,92 @@
+I am a grass that has come to the middle of a mountain, a huge rock. 
+No other plant can thrive next to me.
+Gange wrote only for me: Kucho! Let the rock be your parents, your fate and luck, your past and future!
+Rock! Is it because you are my parents, my guardian and owner?
+It's me, don't be afraid, dark one.
+There are hard-packed boulders around. 
+Who knows how far they have rooted
+Some of them don't even listen to me, as if I don't even exist; They stare into the abyss. 
+What are they looking for
+what did they lose there?
+They won't tell me, even if I ask a thousand times
+what they are thinking, their thoughts are limitless, their hearts are unknowable. 
+Sometimes the rock turns brown, perhaps something is bothering him. 
+Otherwise, my mother is unyielding and brave; He is not afraid of the avalanche, which sometimes falls on us with thunder in winter, it will come and fall into the abyss with a roar, fall and, as if resting, heaving a heavy sigh. 
+The rock sometimes even stirs. 
+I also cry then, I see my mother's tears and that's why. 
+My mother stares at her murdered children, who are always in front of her eyes
+Even if he wants a lot, he cannot take his eyes off. 
+The children of the rock are boulders, thrown down one by one, weaned from the breast of the rock, the breast of it...
+Well, Dablida how cruelly they sneered at their parents, as if begging them, why don't you take us there, why aren't we near you. 
+It would be in vain to ask them, to beg them, even if they could destroy it; But what can they do?
+I also sprinkle them on my head and sprinkle the dew with one or two drops. 
+For them it is very pleasant.
+He even gave me a friend, sometimes I would talk to him. 
+God help the flowers, if they die on the other side of the mountain. 
+They hum sweetly, they sing sweetly in a soft, low voice; 
+They too, like me, lucky, will meet Pirimze. 
+Beautiful Pirimzev, how far you are from me, but still how you kiss my heart!
+How I rushed, I stared intently, I can't take my eyes off of him for a minute
+I love him so much, and he doesn't look away from me even once to revive my dead, burnt heart. He looks at the sun, he meets it. 
+The sun shines on Pirim. 
+From the east to the west, the eye and the mouth follow it
+When the sun goes down, he will be white, he will be sad to part with Satrfo. 
+Pirimze's cry makes me cry too. 
+I think I saw it yesterday. 
+No, he is holy, sinless, and I am ugly and sinful. 
+Should I be surrounded by blood and gore?! 
+It's all the fault of that old eagle that nests next to me. 
+If he wakes up in the morning, he barks hideously, threatens someone, glares at Diderot, the bloodthirsty, and then drags him out to death; All the birds give way. 
+He brings the game, he sits on top of me, one of them is cut into a stone, it screams, blood comes out and I cry. 
+Why will I avoid it? 
+I'm red with blood, then the sun looks at me and calls out this blood on my body. 
+Undoubtedly, because of this blood, Pirim's eyes are cringing, otherwise he would have called me once: street! Son of the rock, hail yours!
+I love this flower...
+Men call it a flower, because its face and eyes are always directed towards the sun, it is a reflection of the sun
+As the child's eyes follow the mother and tries to hide her mother, so does this. 
+The sun is the mother, Pirimze is the son of the sun.
+Who knows if I love Pirim? 
+What is this kind of love anyway? I can't go to him, he can't go to me, we can't kiss each other. 
+Such love is a pleasant suffering. 
+I look forward to the dawn, then I will see my fate. 
+When winter comes, my heart will turn black and sink into the ground. 
+I would like to invest in it, so that one part of me would meet that one face to face. 
+Spring will come, Pirim will come alive and I will come alive then. 
+I forget the moss and moss hanging on my back, I feel like I'm on a pyrim and I say like a madman: Your plague, beautiful, yours!
+Would you like to know where the flowers go in the winter? 
+I think it's called death. 
+Who taught me the word death? 
+Here is this boulder, which stuck its nose on my side and stopped the country with fury. That and that two hundred year old eagle. 
+No, death doesn't have to be good. 
+Yesterday, that restless old man swallowed a grouse. On my head, how much the sabrolo moaned, and he squealed mercilessly, mocking with his diamond beak.
+Street, Benterav, that's called death! Lod whispered to me. 
+I cried out of pity for the grouse.
+If this is really death, it must not be good...
+Once I saw a horrible sight, it was like death. 
+If a big field can be seen below, far away, this story happened in those fields. 
+A crowd of people appeared from two sides. 
+They were all beautiful, beautifully dressed
+They are sitting on horses, gracefully and moving towards each other with great speed.
+I couldn't understand what you were saying because of the distance. 
+They avoided each other, I couldn't take my eyes off the glint of the weapon, it was burning me. 
+They throw each other from their horses, shout at each other, hit each other with swords.
+At the end, they all hid as if a riot had struck. 
+By the time Janghi was finished, the evening was approaching. 
+I saw the horsemen running on their steeds in the field like these boulders. 
+This picture was a satirical picture for me and I even cried. 
+They would lose their beauty. 
+It hurt me and it made me cry.
+Sun, look at me! 
+It's raining, man! 
+High rock, save my roots
+don't lose my life
+don't dig me up
+don't uproot me!
+Upward, Turfav, beautiful! 
+The sun of your beauty, look at me at least once in a thousand appreciate your smile! 
+I'm poor, I'm a dirty street, have mercy on me! 
+You mountain breeze, life-giving spirit of nature! 
+Cool me, cool my hot heart!
+The eagle, the average bird! 
+If you believe in God, try not to show my eyes when you make the blood of innocent souls; Do not let my ears hear their moaning, for their moaning is my moaning, my heart's anguish and woe. 
+Creator, protect me, save me from the street hanging on a barren rock!..

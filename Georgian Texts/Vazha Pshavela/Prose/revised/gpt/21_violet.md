@@ -9,10 +9,10 @@ No, the trees: birch, beech, hazel, elm, and poplar surround me and guard me, th
 I lift my head and wish, if only I could sing, if only my creator had given me the gift to praise the high sky and clouds, the sun, these protective trees, these mountains, those meadows, and the chirping birds, which with their red and green feathers dance before me in the dry, yellow leaves and sometimes chirp at me, play with me, rejoicing in my life. 
 My one month's life is better than someone else's twenty-four months of life, but I long for a long life. 
 This morning, a "beech-bird" sang near me, it was beautiful – red-throated, chirping; it too, like me, admired itself, looking at its chest and shoulders; everyone admires themselves, everyone rejoices in life, everyone loves nature.
-Yesterday the sky thundered. Thunder and lightning do not frighten us: thunder heralds rain, and rain nurses us on the heart of the earth. 
+Yesterday the sky thundered. 
+Thunder and lightning do not frighten us: thunder heralds rain, and rain nurses us on the heart of the earth. 
 The sun is our father, watching over us from above, caressing us, keeping an eye on us. 
-The arrival of rain is a joy for plants – they rejoice, their happiness reaching up to their necks.
-Now they will don new dresses and finery. 
+The arrival of rain is a joy for plants – they rejoice, their happiness reaching up to their necks. Now they will don new dresses and finery. 
 It has been two days since my dear friend, the daisy, appeared; poor thing, it is so happy, always nodding its head up and down, bowing to the earth and the sunlight, whispering to me, telling me stories about life and love; sometimes it even dances, embraces me, and kisses me. 
 Yesterday morning, both my friend and I cried.
 How pitiless is man?! 

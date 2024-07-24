@@ -1,0 +1,51 @@
+On a meadow surrounded by dense, shadowy forest, a great commotion could be heard. 
+Men, women, children, and dogs were buzzing around like flies! 
+Most of the people were armed with guns. 
+Everyone's face glowed with pleasure and happiness, everyone's lips were adorned with smiles; the people were gathered around a slain deer, killed by the hunters this morning. 
+The child of the forest, raised in the heart of the forest and grown strong, lay lifeless; its eyes, slaughtered eyes, floated in murky water; its tongue hung out.
+When the hunter's horses saw the dead deer, they snorted and turned away, not wanting to look at the dead deer
+so they grazed on the green grass at the end of the field, their reins trailing. 
+The children, who had not yet admired the deer, were now clinging to the branches of its antlers.
+"Quickly skin it, quickly!" the women urged
+"Let's see how the venison tastes grilled!"
+Someone shouted: "Come on, women, before the grilled meat is ready, let's breathe in the air, get our blood moving, we'll enjoy it even more. 
+So, until the grilled meat is ready, let's have some dancing, drums, and pipes!"
+"It will be very good, very good," a man with a big mustache chimed in and was the first to start dancing, prancing like a young bull
+he was the first to welcome the sound of the drums and pipes with open arms. 
+Others followed him, swirling on the grass, enjoying life. 
+Some didn't have time: they were skinning the deer. 
+The killing of the deer had multiplied the joy; everyone's wish had been fulfilled; they had killed the deer, that's why this crowd of people had come out to the field, to kill a deer or a roe deer, and they had done it. 
+Their hearts' desires had been fulfilled; everyone there was happy today. 
+Only the forest, the surrounding nature, was not happy; the forest was crying, crying bitterly, the mountain slopes overlooking the meadow where the deer was being skinned. 
+The slopes covered in dark forest were sending sighs and moans, carried by the wind, to the meadow where the deer lay.
+The old trees - lindens, oaks, elms, hornbeams, alders, pines, birches, maples, and others - were whispering, all of them together, although they stood far apart from each other, had heard the death of their beloved child. 
+The forest is the mother of the deer, the forest nursed it, the forest rocked its cradle, the forest covered it as a blanket. 
+The forest raised and nurtured the deer, and the forest was proud of itself for raising such a young, beautiful child.
+The beauty of the deer was interwoven with the beauty of the forest itself. 
+The charm of the deer is proof of the forest's beauty. 
+Can the ugly, the unpleasant, give birth to beauty? 
+In the deer, the forest saw itself. 
+The deer is the pride of the forest. 
+Tell me, has the forest ever spared anything that the deer's eyes and mouth could reach?! 
+The deer ruled the inaccessible forest as its complete property; the forest was happy about this, it wasn't offended: it wanted its child, its raised one, to be beautiful, young, intelligent and strong, a famous young man.
+The goodness of the deer was the goodness of the forest itself, just as the goodness of a child is always the glory of the parent.
+"Oh my beauty, 
+oh my head! 
+Light would fill my heart when it passed before me and gazed at me with its beautiful, innocent eyes," said a rock in the forest, covered in green and yellow moss, intertwined with the roots of oaks and pines.
+The deer, the companions of the slain one, who would give them time to mourn, 
+ran away in fear, their own lives were their concern. 
+Even the rustle of a woodcock in the forest seems like death to them. 
+They dart their eyes back and forth, prick up their ears - sharpening their hearing. 
+They sniff the wind; the smell of humans frightens them more than wolves...
+The forest was crying...
+Under the shade of a large oak, a long table was set, its edges adorned with a row of people - men and women. 
+There was eating and drinking, a great feast, the clinking of glasses, and the sound of "many years" and "cheers" could be heard. 
+Singing was followed by dancing, laughter, and merriment.
+The sun dipped towards the west; evening was approaching; the hunters prepared to go home; the women packed the cart; the young men mounted their horses. 
+They held their guns proudly, as much as possible; each of their glances silently proclaimed to the others
+"We are hunters, very skilled at shooting, and therefore good fellows!"...
+The hunters returned home satisfied and happy. 
+The field was left orphaned, with only a campfire visible, where an hour ago the fire had crackled and venison skewered on wooden skewers had been roasting; where a long table had been set and the laughter and merriment of men and women could be heard. 
+Here and there lay the gnawed bones of the deer, the remnants of the dogs' feast after the humans.
+And the forest cried and said: "Oh my glorious son, my dear, when will I raise another child like you, adorned with antlers and a strong body; I was proud of you, and from this day on, who will I be proud of?!"
+The forest moaned and shed tears.
