@@ -10,10 +10,10 @@
 8,"I lift my head and wish, if only I could sing, if only my creator had given me the gift to praise the high sky and clouds, the sun, these protective trees, these mountains, those meadows, and the chirping birds, which with their red and green feathers dance before me in the dry, yellow leaves and sometimes chirp at me, play with me, rejoicing in my life.",1.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
 9,"My one month's life is better than someone else's twenty-four months of life, but I long for a long life.",0.0,0.0,0.0,0.0,0.0,1.0,0.0,0.0,0.0,0.0
 10,"This morning, a ""beech-bird"" sang near me, it was beautiful – red-throated, chirping; it too, like me, admired itself, looking at its chest and shoulders; everyone admires themselves, everyone rejoices in life, everyone loves nature.",1.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
-11,"Yesterday the sky thundered. Thunder and lightning do not frighten us: thunder heralds rain, and rain nurses us on the heart of the earth.",0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
-12,"The sun is our father, watching over us from above, caressing us, keeping an eye on us.",0.0,0.0,1.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0
-13,"The arrival of rain is a joy for plants – they rejoice, their happiness reaching up to their necks.",1.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
-14,Now they will don new dresses and finery.,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
+11,Yesterday the sky thundered.,0.0,0.0,0.0,1.0,0.0,0.0,0.0,0.0,0.0,1.0
+12,"Thunder and lightning do not frighten us: thunder heralds rain, and rain nurses us on the heart of the earth.",0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
+13,"The sun is our father, watching over us from above, caressing us, keeping an eye on us.",0.0,0.0,1.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0
+14,"The arrival of rain is a joy for plants – they rejoice, their happiness reaching up to their necks. Now they will don new dresses and finery.",1.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
 15,"It has been two days since my dear friend, the daisy, appeared; poor thing, it is so happy, always nodding its head up and down, bowing to the earth and the sunlight, whispering to me, telling me stories about life and love; sometimes it even dances, embraces me, and kisses me.",0.0,0.0,0.0,0.0,0.0,1.0,0.0,0.0,0.0,1.0
 16,"Yesterday morning, both my friend and I cried.",0.0,0.0,0.0,0.0,0.0,1.0,0.0,0.0,0.0,0.0
 17,How pitiless is man?!,0.0,0.0,0.0,0.0,0.0,0.0,1.0,0.0,0.0,0.0

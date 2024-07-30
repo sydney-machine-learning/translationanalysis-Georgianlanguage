@@ -10,10 +10,10 @@
 8,"I stretch my neck and wish, if only I could sing, if only the creator had given me the talent, so that I could sing the high sky and clouds, the sun, these trees that protect me, these mountains, those meadows and colorful birds, which are black, yellow. They crawl in front of me with red and green wings in the leaves and sometimes chirp in my mouth, play with me, they are happy with my life.",0.0,0.0,0.0,0.0,0.0,1.0,0.0,0.0,0.0,1.0
 9,"My one month of life is better than twenty-four months of someone else's life, but I long for a long life.",0.0,0.0,0.0,0.0,0.0,1.0,0.0,0.0,0.0,0.0
 10,"In the morning, a ""beech bird"" sang near me, it was a beautiful thing - red-throated, colorful; he also liked himself like me, he looked at his heart and shoulders; Everyone likes themselves, everyone is happy with life, everyone loves nature.",1.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
-11,"Yesterday the sky thundered. Thunder does not scare us: thunder is a harbinger of rain, and rain suckles us on the breast of the earth.",0.0,0.0,0.0,1.0,0.0,0.0,0.0,0.0,0.0,1.0
-12,"The sun - the father, looks at us from above and caresses us, keeps an eye on us.",0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
-13,"The arrival of rain makes the plants happy - they are happy, they are filled with joy up to their necks.",1.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
-14,Now they will put on new dresses and veils.,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
+11,Yesterday the sky thundered.,0.0,0.0,0.0,1.0,0.0,0.0,0.0,0.0,0.0,1.0
+12,"Thunder does not scare us: thunder is a harbinger of rain, and rain suckles us on the breast of the earth.",0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
+13,"The sun - the father, looks at us from above and caresses us, keeps an eye on us.",0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
+14,"The arrival of rain makes the plants happy - they are happy, they are filled with joy up to their necks. Now they will put on new dresses and veils.",1.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
 15,"These two days, my friend Sasutela also appeared; happy, happy poor thing, keeps shaking his head up and down, beats the earth, the sunlight, whispers to me, tells fairy tales about life, love; sometimes he even giggles, hugs me and kisses me.",0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
 16,Yesterday morning me and my friend both cried.,0.0,0.0,0.0,0.0,0.0,1.0,0.0,0.0,0.0,0.0
 17,How merciless is man?!,0.0,0.0,0.0,0.0,0.0,0.0,1.0,0.0,0.0,0.0

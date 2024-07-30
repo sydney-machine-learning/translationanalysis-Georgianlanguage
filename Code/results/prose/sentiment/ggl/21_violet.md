@@ -10,10 +10,10 @@
 8,"I will sing my throat and miss, I wish I could sing, I wish the creator gave me the talent to have above me the sky and the clouds, the sun, these trees of my protection, these mountains, those marshes and the birds that dry, yellow in the leaves with red and green feathers before me. They play with me and sometimes lick my mouth, they play with me, they enjoy my life.",0.0,0.0,0.0,0.0,0.0,1.0,0.0,0.0,0.0,1.0
 9,"My life of one month is better than another's life of twenty-four months, but I miss a long life.",0.0,0.0,0.0,0.0,0.0,1.0,0.0,0.0,0.0,0.0
 10,"In the morning, a ""beech-cheetah"" chirped near me, it was a beautiful thing, red-throated, gabua; Like me, he liked himself, looked at his heart and shoulders; Everyone likes themselves, everyone enjoys life, everyone loves nature.",1.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
-11,"The sky was thundering yesterday. The thunder does not frighten us: the thunder brings rain, and the rain suckles us at the heart of the earth.",0.0,0.0,0.0,1.0,1.0,0.0,0.0,0.0,0.0,1.0
-12,"The sun is our father, he always looks at us and cares for us, he watches over us.",0.0,0.0,1.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0
-13,"They are happy about the arrival of rain with plants, - they are happy, they gathered in the joy of Kelamdi;",1.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
-14,Now they will wear new dresses and khatibs.,0.0,0.0,0.0,0.0,0.0,0.0,1.0,0.0,0.0,1.0
+11,The sky was thundering yesterday.,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
+12,"The thunder does not frighten us: the thunder brings rain, and the rain suckles us at the heart of the earth.",0.0,0.0,0.0,1.0,0.0,0.0,0.0,0.0,0.0,1.0
+13,"The sun is our father, he always looks at us and cares for us, he watches over us.",0.0,0.0,1.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0
+14,"They are happy about the arrival of rain with plants, - they are happy, they gathered in the joy of Kelamdi; Now they will wear new dresses and khatibs.",1.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
 15,"It's been two days since my daughter Sasutela appeared; Rejoicing, rejoicing, the poor man keeps shaking his head up and down, playing with the earth, the sunlight, whispering to me, telling me tales about life and love; Sometimes he even giggles, hugs me and kisses me.",0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
 16,Yesterday morning my Dobil and I both cried.,0.0,0.0,0.0,0.0,0.0,1.0,0.0,0.0,0.0,0.0
 17,How unforgiving is a man?!,0.0,0.0,0.0,0.0,0.0,0.0,1.0,0.0,0.0,0.0

@@ -10,10 +10,10 @@
 8,"I gracefully bend my neck and yearn that I could only sing and that he who gave me life had endowed me with the talent to praise on high the sky and clouds, the sun, these trees that protect me, these mountains, those groves and fluffy-chested birds who hop about amongst the withered, yellow leaves with their red and green plumage and from time to time chirp right in my face; they embolden me and themselves rejoice in my being alive.",1.0,0.0,1.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
 9,My single month’s existence betters another’s two-year span; nevertheless a long life is indeed the object of my desires.,1.0,0.0,0.0,1.0,0.0,0.0,0.0,0.0,0.0,0.0
 10,"This morning a beech-warbler sang away close by me — it was a thing of beauty, red-necked and fluffy-chested; it too, just like me, took pride in itself as it looked over its breast and shoulders; everything takes pride in itself, everything enjoys life, everything loves nature.",0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
-11,"Yesterday there was thunder in the heavens; but thunder and lightning cause us no fear — thunder portends rain, and rain, after all, gives us suck at the breast of Mother Earth.",0.0,0.0,0.0,1.0,0.0,0.0,0.0,0.0,0.0,1.0
-12,"The sun is a father who looks down on us from above, caresses us and keeps a watchful eye over us.",0.0,0.0,1.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0
-13,Plants rejoice at the coming of rain — they rejoice and are full to overflowing with joy.,1.0,0.0,1.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
-14,Shortly they’ll be donning new dresses and jackets.,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
+11,Yesterday there was thunder in the heavens.,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
+12,"But thunder and lightning cause us no fear — thunder portends rain, and rain, after all, gives us suck at the breast of Mother Earth.",0.0,0.0,0.0,1.0,0.0,0.0,0.0,0.0,0.0,1.0
+13,"The sun is a father who looks down on us from above, caresses us and keeps a watchful eye over us.",0.0,0.0,1.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0
+14,Plants rejoice at the coming of rain — they rejoice and are full to overflowing with joy. Shortly they’ll be donning new dresses and jackets.,1.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
 15,"Look, it’s two days since my companion, the foxglove, sprang up; she rejoices, she rejoices, poor thing, forever shaking her head now way down low, now way up high, now bowing to the earth, now saluting the sunshine; she whispers to me and tells me tales about life and love. Now and again she’ll even let forth a peel of laughter, embrace me and kiss me.",0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
 16,"Yesterday morning both of us, my companion and I, wept.",0.0,0.0,0.0,0.0,0.0,1.0,0.0,0.0,0.0,0.0
 17,How pitiless is man?!,0.0,0.0,0.0,0.0,0.0,0.0,1.0,0.0,0.0,0.0

@@ -50,8 +50,8 @@
 48,It didn't even happen to you. There is nowhere to lose!,0.0,0.0,0.0,1.0,0.0,0.0,0.0,0.0,0.0,0.0
 49,"Who is shaking the coffin,",0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
 50,Who will light the candle?,1.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
-51,oh how hard it is to die,0.0,0.0,0.0,1.0,0.0,1.0,0.0,0.0,0.0,0.0
-52,Let the name be lost!,0.0,0.0,1.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0
+51,Oh!,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
+52,How hard it is to die let the name be lost!,0.0,0.0,0.0,0.0,0.0,1.0,0.0,0.0,0.0,0.0
 53,"At night, once in a thousand, an owl will sit on a dry beech tree, and with the voice of a dacodile, it will follow the heartbroken cry: ""Can't you find it?"" And, when the exhausted one hears: ""No way, no way"", he will hang his head and cry ""Hollow, hollow"" in a low voice to his heart.",0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
 54,"In winter, the wolf sometimes visits a dry beech tree.",0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,0.0,1.0
 55,"Hangs out next to it and howls, tired of hunger.",0.0,0.0,0.0,0.0,0.0,1.0,0.0,0.0,0.0,1.0
