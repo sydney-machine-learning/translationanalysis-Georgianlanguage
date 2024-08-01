@@ -2,7 +2,17 @@ labeledEn.csv
 *.pth
 *.pyc
 *.pyo
+*.tex
+*.bib
+*.bst
+*.cls
+*.aux
+*.bbl
+*.spl
+*.pdf
+*.tex
 .venv/
 runs/
 **/__pycache__
 **/.ipynb_checkpoints
+**/Tex
